@@ -1,1 +1,1 @@
-# muhammadboburisroiljonov993-pixel-
+Ai studio
